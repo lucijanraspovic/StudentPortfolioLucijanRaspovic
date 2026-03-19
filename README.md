@@ -45,7 +45,7 @@ organizacije kroz konkretan rad i učenje.
 ## 📫 Kontaktirajte me
 Uvijek sam otvoren za nove prilike, učenje i suradnju na zanimljivim projektima.
 
-*   **LinkedIn:** [Poveznica na tvoj profil](https://www.linkedin.com/in/lucijan-raspovi%C4%87-a5b088270/)
+*   **LinkedIn:** [Poveznica na moj profil](https://www.linkedin.com/in/lucijan-raspovi%C4%87-a5b088270/)
 *   **Email:** [lraspovic22@student.foi.hr]
 
 ---
